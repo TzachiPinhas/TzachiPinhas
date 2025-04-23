@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TzachiPinhas
--  📫 How to reach me: You can reach me via email at tzachi2468@gmail.com.
+-  📫 How to reach me: You can reach me via email at tzachipinhas@gmail.com.
 
 
 
